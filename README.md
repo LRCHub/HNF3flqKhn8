@@ -1,0 +1,118 @@
+# KEIJU – SAYSUM
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+There’s no enough space in VIP seat for my
+dancing
+Ye I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+And i jus feeling
+There’s no enough space in VIP seat for my
+dancin’
+I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+座ってるクラブのV.I.P
+周りにダチいっぱい たくさん飲んでる1942
+どうかしてるけど ソファに土足でだいたい良い感じ
+派手に踊ってる ダンサー DJ 誰かのPYT
+どっから見てても 良いようにとかできたら良い金曜
+日
+実際何にも無いのに言ってるbi
+What you know bout me?
+酒が効いてきたら当然
+可愛く見えてるさっきより
+俺を信じんなよ
+はっきり言うけど 誰でも良かった本当に
+I know u pretend  u don’t know me
+And i know that’s just for me
+Said i love your taste in boots and i got the
+same boots theyre doc martens
+Imma buy u a drink at 5am dance to new rb
+B2b old r&b uve got a brand new pair of house
+keys
+I need girl like beabaddoobee
+I think she wont ever kiss & tell so i tell
+location
+Ye その黒目に合うと瞬きの間も惜しい vacation
+How can u be a hot mess like this in winter
+though u r not Winter?
+So u wantin my a to the z,then 2 months later
+U celebrate us in november
+There’s no enough space in VIP seat for my
+dancing
+Ye I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+And i jus feeling
+There’s no enough space in VIP seat for my
+dancin’
+I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+I can treat u well like u r peduncle
+Why are u blooming when im in london?
+U may be the mirror of season
+So you turn red with no reason
+She don’t care bout genre
+Theo parrish’d make her water
+Be colder, never be sober
+つれない態度は良い予備動作 lately
+I been spending my time just missing ya babe,
+put me out of freezer
+Your boyfriend misunderstands it b
+God gave u feet for dancing
+That’s why a hundred percent sure that i will
+disturb your sleep
+U get a creepy phone call that’s not me
+Long red hair kelly, she craving me
+2ケツで動いてる近所
+下ろしてもらっても
+履いてるサンダル
+怪しまれている銀行
+袋に現金いれたら
+傍に抱えて走ったらアメフト
+うぜーから良いもん
+食ったりしてるのさ
+好き勝手やるよずっと
+今は閉まってるマック
+昔やってた24
+あいつら巻いてる
+何にも知らないガキンチョ
+真夜中オレンジの街灯
+シラフになったら寂しいよ
+って言ってる短い一生
+思い出だったら綺麗なまんま
+あの日見た君のよう girl
+There’s no enough space in VIP seat for my
+dancing
+Ye I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+And i jus feeling
+There’s no enough space in VIP seat for my
+dancin’
+I know u fancy
+I don’t wanna ask your number
+Cause a hundred percent sure that i will disturb
+your sleep
+If it’s daytime party, u have no thoughts for
+morrow
+```
